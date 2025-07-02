@@ -1,4 +1,4 @@
-# wholesale-custom-protective-packaging-in-Brea | Bluerose Packaging
+# Wholesale Custom Protective Packaging in Brea | Bluerose Packaging
 
 Shop wholesale custom protective packaging in Brea with fast turnaround and tailored designs. Secure your shipments with cost-effective, industry-grade packaging built to protect. 
 
